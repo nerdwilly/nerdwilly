@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nerdwilly
-- 👀 I’m interested in Fivem/GTA% scripting
+- 👀 I’m interested in Fivem/GTA5 scripting
 - 📫 How to reach me Discord: ! 𝓝𝓮𝓻𝓭𝓦𝓲𝓵𝓵𝔂©#4810
 
 <!---
